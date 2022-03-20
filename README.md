@@ -1,3 +1,3 @@
 ### Hello mate :wave:
-**Don't wait. Go and checkout my work and some other awesome forked repositories.**
+**Don't wait. Go and checkout my awesome works and some other awesome forked repositories.**
 
